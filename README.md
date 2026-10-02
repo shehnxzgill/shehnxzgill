@@ -1,7 +1,7 @@
 ## Hi, I am Shehnaz 👋
 
 
-I am an aspiring Data Analyst who enjoys working with queries. I love looking at patterns and trends as they hold deeper meanings. 
+I am an aspiring Gen Z Data Analyst who enjoys working with queries. I love looking at patterns and trends as they hold deeper meanings. 
 
 I look forward to collaborate with experienced Data professional who can share their wisdom and knowledge with me, as this journey unfolds. 
 
